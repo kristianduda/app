@@ -1,1 +1,1 @@
-# vypadnivon.sk
+# vypadnivon.sk -> dobyhory.sk
